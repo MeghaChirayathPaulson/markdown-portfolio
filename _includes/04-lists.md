@@ -1,5 +1,5 @@
-You can win
+- You can win
 
-Burried Thoughts
+- Burried Thoughts
 
-Wings of fire
+- Wings of fire
