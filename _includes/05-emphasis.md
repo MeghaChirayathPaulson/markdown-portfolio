@@ -1,0 +1,5 @@
+- *communication skill*
+- _confidence_
+- **leadership**
+- __team player__
+- _proble **solving** skill_
